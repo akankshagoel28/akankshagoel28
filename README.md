@@ -1,4 +1,4 @@
-#- 👋 Hi, I’m Akankshaa A. Goel
+# - 👋 Hi, I’m Akankshaa A. Goel
 - 👀 I’m interested in design, cybersecurity, and web development.
 - 🌱 I’m currently learning cybersecurity
 - 📫 How to reach me 
