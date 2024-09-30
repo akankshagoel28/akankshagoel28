@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **goelakanksha7379@gmail.com**
 
-- ⚡ Fun fact **Hoarding novels is my guilty pleasure.**
+- ⚡ Fun Fact: **Hoarding novels is my guilty pleasure.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
